@@ -80,6 +80,3 @@ hgeuguhgerh
 jnheiuhbruihber
 
 
-dfdfgghdfghfh
-
-bvhjghjghjghjghj
